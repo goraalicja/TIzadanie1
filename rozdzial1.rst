@@ -13,12 +13,14 @@ Napój z kombuchy charakteryzuje się bardzo bogatym składem. Zawiera między i
 **Na co może pomóc kombucha?**
 
 Właściwości zdrowotne, których można się domyślać to:
+
 - odtruwanie organizmu
 - działanie antyoksydacyjne
 - wspieranie układu odpornościowego i wpływ na odbudowę flory bakteryjnej
 - regulowanie pracy układu pokarmowego,
 - usprawnianie pracy nerek i pęcherza moczowego,
 - wspomaganie regeneracji wątroby.
+
 Napój z kombuchy polecany jest w wielu dolegliwościach, np. przy bezsenności, braku apetytu, utracie pamięci, nadciśnieniu tętniczym, wysokim poziomie cholesterolu, otyłości, osłabieniu, zespole przewlekłego zmęczenia, zespole napięcia przedmiesiączkowego, reumatyzmie, artretyzmie, cukrzycy, a nawet AIDS i nowotworach.
 
 **Kombucha wykazuje również wiele cennych właściwości przy stosowaniu zewnętrznym**, 
