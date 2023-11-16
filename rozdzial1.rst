@@ -4,7 +4,7 @@ Kombucha jest sfermentowaną herbatą. Fermentacja zachodzi dzięki grzybowi her
 
 **Jak wygląda grzyb herbaciany?** 
 
-Niezbyt atrakcyjnie, ma postać galaretowatej, plackowatej masy o białej lub jasno-pomarańczowej barwie. Po dodaniu go do posłodzonej herbaty zaczyna fermentować. W procesie tym następuję wymiana cukru na alkohol etylowy i dwutlenek węgla, dzięki czemu powstaje słodko-kwaśny, musujący i orzeźwiający napój o ciekawych walorach smakowych. Może mieć barwę od jasnoszarej do ciemnobrązowej. W sklepach ze zdrową żywnością oraz w Internecie można zakupić gotowy napój z kombuchy – cena wynosi od 7 do 20 zł za 500 ml lub też przygotować go samodzielnie.
+Niezbyt atrakcyjnie, ma postać galaretowatej, plackowatej masy o białej lub jasno-pomarańczowej barwie. Po dodaniu go do posłodzonej herbaty zaczyna fermentować. W procesie tym następuję wymiana cukru na alkohol etylowy i dwutlenek węgla, dzięki czemu powstaje słodko-kwaśny, musujący i orzeźwiający napój o ciekawych walorach smakowych. Może mieć barwę od jasnoszarej do ciemnobrązowej. W sklepach ze zdrową żywnością oraz w Internecie można zakupić gotowy napój z kombuchy – cena wynosi od 7 do 30 zł za butelkę lub sam grzyb herbaciany z starterem do samodzielnego przygotowania napoju, jego ceny wahają się w internecie od 10 do 30 zł.
 
 **Jakie właściwości zdrowotne ma napój z kombuchy?**
 
