@@ -8,7 +8,7 @@ Niezbyt atrakcyjnie, ma postać galaretowatej, plackowatej masy o białej lub ja
 
 **Jakie właściwości zdrowotne ma napój z kombuchy?**
 
-Napój z kombuchy charakteryzuje się bardzo bogatym składem. Zawiera między innymi kwasy organiczne (octowy, mlekowy, jabłkowy, askorbinowy, glukonowy, glukoronowy, szczawiowy), witaminy z grupy B (B1, B2, B6, B12), składniki mineralne (cynk, magnez, wapń, żelazo, miedź), etanol (do 2%), kofeinę, dwutlenek węgla, białka, tłuszcze, polifenole oraz cukry. Z uwagi na zawartość tak licznych związków, z pewnością napój z kombuchy posiada wiele właściwości zdrowotnych, chociaż większość z nich nie znalazła jeszcze potwierdzenia w badaniach naukowych.
+Napój z kombuchy charakteryzuje się *bardzo bogatym składem*. Zawiera między innymi kwasy organiczne (octowy, mlekowy, jabłkowy, askorbinowy, glukonowy, glukoronowy, szczawiowy), witaminy z grupy B (B1, B2, B6, B12), składniki mineralne (cynk, magnez, wapń, żelazo, miedź), etanol (do 2%), kofeinę, dwutlenek węgla, białka, tłuszcze, polifenole oraz cukry. Z uwagi na zawartość tak licznych związków, z pewnością napój z kombuchy posiada wiele właściwości zdrowotnych, chociaż większość z nich nie znalazła jeszcze potwierdzenia w badaniach naukowych.
 
 **Na co może pomóc kombucha?**
 
