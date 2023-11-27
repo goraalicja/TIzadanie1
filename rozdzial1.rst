@@ -14,7 +14,7 @@ Napój z kombuchy charakteryzuje się *bardzo bogatym składem*. Zawiera między
 
 Właściwości zdrowotne, których można się domyślać to:
 
-- odtruwanie organizmu
+- odtruwanie organizmu,
 - działanie antyoksydacyjne
 - wspieranie układu odpornościowego i wpływ na odbudowę flory bakteryjnej
 - regulowanie pracy układu pokarmowego,
